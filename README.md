@@ -1,0 +1,2 @@
+# easyAlgoritmika
+lol
